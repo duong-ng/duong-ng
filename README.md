@@ -15,5 +15,8 @@
 ## Contact me via :
 - [Facebook : Nguyễn Dương](https://www.facebook.com/nguyen.duong.143786/)
 - My gmail: notduong1601@gmail.com
+## ✨ Fun facts :
+- I'd love to learn everything I come across :grinning:
+
 
 
